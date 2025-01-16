@@ -139,7 +139,7 @@ España, mientras tanto, empeñada en la Reconquista de la península Ibérica, 
 
 Todo esto me pasó por la cabeza cuando, exactamente a las siete en punto de la tarde, crucé la puerta principal del viejo castillo del Temple en Ponferrada, donde tenía un encuentro marcado con la Tradición.
 
-No había nadie. Esperé durante media hora, fumando un cigarrillo tras otro, hasta que imaginé lo peor: el Ritual debió de haber sido a las 7.00 AM, o sea, por la mañana. Pero, en el preciso momento en que decidía irme, entraron dos chicas con la bandera de Holanda y con la vieira --- símbolo del Camino de Santiago - cosidas en la ropa. Ellas se acercaron a mí, intercambiamos algunas palabras y llegamos a la conclusión de que esperábamos lo mismo. El recado no estaba errado, pensé con alivio.
+No había nadie. Esperé durante media hora, fumando un cigarrillo tras otro, hasta que imaginé lo peor: el Ritual debió de haber sido a las 7.00 AM, o sea, por la mañana. Pero, en el preciso momento en que decidía irme, entraron dos chicas con la bandera de Holanda y con la vieira --- símbolo del Camino de Santiago --- cosidas en la ropa. Ellas se acercaron a mí, intercambiamos algunas palabras y llegamos a la conclusión de que esperábamos lo mismo. El recado no estaba errado, pensé con alivio.
 
 Cada quince minutos llegaba alguien. Aparecieron un australiano, cinco españoles y otro holandés. Fuera de algunas preguntas sobre el horario --- duda común a todos --- no conversamos casi nada. Nos sentamos juntos en el mismo lado del castillo --- un atrio en ruinas que había servido como depósito de alimentos en tiempos antiguos --- y decidimos aguardar hasta que algo sucediese. Aunque tuviésemos que esperar un día más y una noche.
 
