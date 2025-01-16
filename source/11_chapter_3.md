@@ -49,7 +49,7 @@ Miré alrededor y mis propias palabras sonaron sin sentido. El episodio de la cr
 
 Había cambiado de tema y yo sabía que no sacaría nada con insistir. Me levanté, me puse un pantalón largo y una camisa limpia y cambié las vendas de las heridas. Había retirado los curativos con todo cuidado, esperando encontrar llagas, pero sólo las costras de las heridas se habían roto, dejando salir un poco de sangre. Ya se había formado una nueva cicatriz y me estaba sintiendo recuperado y bien dispuesto.
 
-Cenamos en el propio restaurante del hotel. Petrus pidió la especialidad de la casa - una paella valenciana -, que comimos en silencio, acompañados sólo por el vino de Rioja. Al final de la cena me invitó a dar un paseo.
+Cenamos en el propio restaurante del hotel. Petrus pidió la especialidad de la casa --- una paella valenciana ---, que comimos en silencio, acompañados sólo por el vino de Rioja. Al final de la cena me invitó a dar un paseo.
 
 Salimos del hotel y fuimos hasta la estación ferroviaria. El había vuelto a su mutismo habitual y continuó calado durante la caminata. Llegamos a un patio de estacionamiento de vagones de tren, sucio y oliendo a grasa. Se sentó al borde de una gigantesca locomotora.
 
@@ -139,15 +139,15 @@ España, mientras tanto, empeñada en la Reconquista de la península Ibérica, 
 
 Todo esto me pasó por la cabeza cuando, exactamente a las siete en punto de la tarde, crucé la puerta principal del viejo castillo del Temple en Ponferrada, donde tenía un encuentro marcado con la Tradición.
 
-No había nadie. Esperé durante media hora, fumando un cigarrillo tras otro, hasta que imaginé lo peor: el Ritual debió de haber sido a las 7.00 AM, o sea, por la mañana. Pero, en el preciso momento en que decidía irme, entraron dos chicas con la bandera de Holanda y con la vieira - símbolo del Camino de Santiago - cosidas en la ropa. Ellas se acercaron a mí, intercambiamos algunas palabras y llegamos a la conclusión de que esperábamos lo mismo. El recado no estaba errado, pensé con alivio.
+No había nadie. Esperé durante media hora, fumando un cigarrillo tras otro, hasta que imaginé lo peor: el Ritual debió de haber sido a las 7.00 AM, o sea, por la mañana. Pero, en el preciso momento en que decidía irme, entraron dos chicas con la bandera de Holanda y con la vieira --- símbolo del Camino de Santiago - cosidas en la ropa. Ellas se acercaron a mí, intercambiamos algunas palabras y llegamos a la conclusión de que esperábamos lo mismo. El recado no estaba errado, pensé con alivio.
 
-Cada quince minutos llegaba alguien. Aparecieron un australiano, cinco españoles y otro holandés. Fuera de algunas preguntas sobre el horario - duda común a todos - no conversamos casi nada. Nos sentamos juntos en el mismo lado del castillo - un atrio en ruinas que había servido como depósito de alimentos en tiempos antiguos - y decidimos aguardar hasta que algo sucediese. Aunque tuviésemos que esperar un día más y una noche.
+Cada quince minutos llegaba alguien. Aparecieron un australiano, cinco españoles y otro holandés. Fuera de algunas preguntas sobre el horario --- duda común a todos --- no conversamos casi nada. Nos sentamos juntos en el mismo lado del castillo --- un atrio en ruinas que había servido como depósito de alimentos en tiempos antiguos --- y decidimos aguardar hasta que algo sucediese. Aunque tuviésemos que esperar un día más y una noche.
 
 La espera se prolongó y decidimos conversar un poco sobre los motivos que nos habían llevado hasta allí. En ese momento supe que el Camino de Santiago es utilizado por varias órdenes, la mayoría de ellas ligadas a la Tradición. Las personas que estaban allí habían pasado por muchas pruebas e iniciaciones, pruebas que yo conocí hace mucho tiempo en Brasil. Apenas el australiano y yo estábamos en busca del grado máximo del Primer Camino. Aunque sin entrar en detalles, supe que el proceso del australiano era completamente diferente de las Prácticas de RAM.
 
 Aproximadamente a las ocho cuarenta y cinco de la noche, cuando íbamos a conversar sobre nuestras vidas personales, sonó un gong. El sonido venía de la antigua capilla del castillo. Nos dirigimos todos hacia allí.
 
-Fue una escena impresionante. La capilla - o lo que restaba de ella, ya que la mayor parte era sólo ruinas- estaba toda iluminada con antorchas. En el sitio donde un día había estado el altar, perfilábanse siete siluetas vestidas con los trajes seculares de los Templarios: capuz y sombrero de acero, una cota de malla de hierro, la espada y el escudo. Perdí la respiración: parecía que el tiempo había dado un salto para atrás. La única cosa que mantenía el sentido de la realidad eran nuestros trajes, jeans y camisetas con vieiras cosidas.
+Fue una escena impresionante. La capilla --- o lo que restaba de ella, ya que la mayor parte era sólo ruinas --- estaba toda iluminada con antorchas. En el sitio donde un día había estado el altar, perfilábanse siete siluetas vestidas con los trajes seculares de los Templarios: capuz y sombrero de acero, una cota de malla de hierro, la espada y el escudo. Perdí la respiración: parecía que el tiempo había dado un salto para atrás. La única cosa que mantenía el sentido de la realidad eran nuestros trajes, jeans y camisetas con vieiras cosidas.
 
 A pesar de la débil iluminación de las antorchas, pude ver que uno de los Caballeros era Petrus.  
 "Aproxímense a sus maestres" dijo el que parecía ser el más viejo. "Miren solamente en sus ojos. Sáquense toda la ropa y reciban las vestiduras."
@@ -170,7 +170,7 @@ Un profundo silencio cayó sobre nosotros y, aun sin ver, pudimos sentir la pres
 
 El Sumo Sacerdote nos roció con agua, sin pisar dentro del círculo. Después, con la Tinta Sagrada, escribió en la tierra los setenta y dos nombres por los cuales es llamado Dios en la Tradición.
 
-Todos nosotros - peregrinos y Caballeros - empezamos a recitar los nombres sagrados. El fuego de las antorchas crepitó, señal de que el espíritu invocado se había sometido.
+Todos nosotros --- peregrinos y Caballeros --- empezamos a recitar los nombres sagrados. El fuego de las antorchas crepitó, señal de que el espíritu invocado se había sometido.
 
 Había llegado el momento de la Danza. Entendí por qué Petrus me había enseñado a danzar el día anterior, una danza diferente de aquella que acostumbro hacer en esta etapa del ritual. Aunque no nos fuese dicha, todos nosotros conocíamos una regla: nadie puede pisar fuera de ese círculo de protección, ya que no portábamos las protecciones que los Caballeros llevaban debajo de sus cotas de malla. Memoricé el tamaño del círculo e hice exactamente lo que Petrus me había enseñado.
 
@@ -187,7 +187,7 @@ No sé cuánto tiempo estuvimos danzando. De repente oí una voz:
 
 No hubo forma de mantener el trance. Contrariado, volví a la Tierra. Estaba de nuevo en el círculo mágico, en el ambiente ancestral del castillo templario.
 
-Nosotros - los peregrinos - nos miramos. La interrupción tan súbita, al parecer, nos disgustó a todos. Sentí muchas ganas de comentar con el australiano que lo había visto. Cuando lo miré, noté que no eran necesarias las palabras: él me había visto también.
+Nosotros --- los peregrinos --- nos miramos. La interrupción tan súbita, al parecer, nos disgustó a todos. Sentí muchas ganas de comentar con el australiano que lo había visto. Cuando lo miré, noté que no eran necesarias las palabras: él me había visto también.
 
 Los caballeros se colocaron alrededor de nosotros. Las manos empezaron a golpear con las espadas en los escudos, dando lugar a un ruido ensordecedor. Hasta que el Sumo Sacerdote dijo:
 
