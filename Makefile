@@ -36,7 +36,7 @@ pdf:
 	--bibliography="$(BIBFILE)" 2>pandoc.log \
 	--csl="$(STYLEDIR)/ref_format.csl" \
 	--highlight-style pygments \
-	-V mainfont="Times New Roman MT Std" \
+	-V mainfont="Times New MT Roman Std" \
 	-V fontsize=12pt \
 	-V papersize=a4paper \
 	-V documentclass:report \
