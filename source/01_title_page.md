@@ -16,7 +16,7 @@ ammended for UNSW by Mathew Lipson, 2018
         \vspace*{1.5cm}
         
         \huge
-        This is the title of the thesis
+        Aqui el titulo del thesis
         
         \vspace{2.5cm}
         
